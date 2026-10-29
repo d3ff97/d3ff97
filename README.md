@@ -23,7 +23,7 @@ typology/classpect stuff for anyone curious: so/sp 529 witch of doom
   <img width="1280" height="116" alt="tumblr_5d9904d6cda72da79b198af8c2715e11_20fa75af_1280" src="https://github.com/user-attachments/assets/550010b0-845c-4c49-96ab-b02217e353d7" />
 
 </p>
-
+<p align="center">
 <img width="69" height="78" alt="tumblr_b66118f8a70e188733f27b7fc1654bc3_04da89d4_100" src="https://github.com/user-attachments/assets/d0efa72e-3c67-4505-a68c-43c480da5408" />
 <img width="69" height="78" alt="tumblr_91a8be2fa64b7d2bed6c76f34abfa402_c2ebde9b_100" src="https://github.com/user-attachments/assets/eb4b480b-81ae-4125-bf48-7624ecfcfd2b" />
 <img width="69" height="78" alt="tumblr_9720beeb09099d8032226951df85df5f_e44637c3_100" src="https://github.com/user-attachments/assets/b22b6a79-9d30-4d12-8765-7897a65b62d4" />
@@ -32,9 +32,12 @@ typology/classpect stuff for anyone curious: so/sp 529 witch of doom
     <img width="110" height="60" alt="tumblr_cfa2ae4dbf0acd9f9d9f47d5b9e606c2_aac74f5a_250" src="https://github.com/user-attachments/assets/5dc15953-b3f7-49dd-ab4b-80ca4454b37f" />
 <img width="110" height="60" alt="tumblr_059e97970b57ea1445de4d9c34024a4e_7baaa19b_250" src="https://github.com/user-attachments/assets/bb4846ac-4299-4509-a495-05a779e29153" />
   <img width="99" height="56" alt="tumblr_dbb5339ad26ec3452b5b18b152ab8e40_2eb3fea0_100" src="https://github.com/user-attachments/assets/15914a61-4479-48f4-a286-e04dbe770f54" />
+
+</p>
+<p align="center">
 <img width="99" height="55" alt="tumblr_da3c9c1f8960fca5f598dc47cbec8fd9_8392b1b3_100" src="https://github.com/user-attachments/assets/74c06dbd-0f88-495d-9d47-5e1c8ee78112" />
 <img width="114" height="70" alt="tumblr_86b3f6707ddcc04dbefa9f6b6b63207e_667b1c13_250" src="https://github.com/user-attachments/assets/3323d1c0-f660-461f-b4b9-0aa412b526ce" />
-
+<img width="99" height="56" alt="tumblr_5361563e04a44106968804aa5a5b56e7_1e45c6d9_100" src="https://github.com/user-attachments/assets/9f2d8925-f191-42f8-9a69-8ab1d0f404f6" />
 
 
 
