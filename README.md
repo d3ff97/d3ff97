@@ -14,6 +14,7 @@
 <ins><b>hellooo my intro</b></ins>
 
 im womp! </p>
+16 y/o, under 14 dont dm me please! </p>
 i like a bunch of stuff (homestuck, roblox, pokemon, HSR/GI(moreso hsr), persona5, etc) </p>
 she/her pref or they/them just nothing masc </p>
 you can message me anywhere im @d3ff97 everywhere im active (i may end up ignoring you if im uninterested or dont want to talk) </p>
