@@ -12,6 +12,8 @@
 
 <p align="center">
   https://d3ff97.atabook.org/
+</p>
+<p align="center">
 <ins><b>hellooo my intro</b></ins>
 
 im womp! </p>
