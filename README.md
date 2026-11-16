@@ -14,14 +14,16 @@
   https://d3ff97.atabook.org/
 </p>
 <p align="center">
+  https://womptown.straw.page
+</p>
+<p align="center">
 <ins><b>hellooo my intro</b></ins>
 
 im womp! </p>
 16 y/o, under 14 dont dm me please! </p>
 i like a bunch of stuff (homestuck, roblox, pokemon, HSR/GI(moreso hsr), persona5, etc) </p>
 she/her pref or they/them just nothing masc </p>
-you can message me anywhere im @d3ff97 everywhere im active (i may end up ignoring you if im uninterested or dont want to talk) </p>
-typology/classpect stuff for anyone curious: so/sp 529 witch of doom
+typology/classpect stuff for anyone curious: intp 5w6 so/sp529 witch of doom
 
 <p align="center">
   <img width="1280" height="116" alt="tumblr_5d9904d6cda72da79b198af8c2715e11_20fa75af_1280" src="https://github.com/user-attachments/assets/550010b0-845c-4c49-96ab-b02217e353d7" />
